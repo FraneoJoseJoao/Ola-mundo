@@ -7,4 +7,4 @@ Agora o professor me ensinou como editar o meu README direitamente do GitHub. Qu
 
 Mais uma vez estou aqui, mas com um tedio danado, ate pareco Brazileiro falando ne gente
 
-vou dormir, goodbuy
+vou dormir, see you
